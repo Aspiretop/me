@@ -62,7 +62,7 @@
 
 ![](http://ww1.sinaimg.cn/large/006YKa8tly1g6c5wlm639j31hb0u0gvy.jpg)
 
-![](http://ww1.sinaimg.cn/large/006YKa8tly1g6c5x3r0ejj31400u0whw.jpg)
+![](http://ww1.sinaimg.cn/large/006YKa8tly1g983ham4nmj33pv2bi4qr.jpg)
 
 ## 暑期外教口语培训（2019.8）
 
